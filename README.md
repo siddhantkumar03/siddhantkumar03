@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/siddhantkumar03?tab=repositories](https://github.com/siddhantkumar03?tab=repositories)
 
-- 📫 How to reach me **kumarravikar03@gmail.com**
+- 📫 How to reach me **siddhantkumar92@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
